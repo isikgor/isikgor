@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @isikgor
+- 👀 I’m interested in GD and Dev.
